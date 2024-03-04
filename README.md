@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Maxwell
+- Interested in algorithms and new techonologies
+- Second year physics student @UofT
+- Looking for co-op oppotunities
